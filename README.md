@@ -1,4 +1,4 @@
-## Hi there 👋
+## O homem mais lindo do planeta Terra (Informação retirada do Google!!!), meu nome é Nicolas Agusto vulgo Nickzin. Sou estudante do Eduardo Velho Filho cursando curso do alura.
 
 <!--
 **NicolasAugPer3S2024/NicolasAugPer3S2024** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
